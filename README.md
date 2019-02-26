@@ -30,3 +30,14 @@ gyuttuot
 ggul
 guhl
 l
+
+
+
+
+
+jhskjahdkjashgkjag
+jñljkñ47  ¨{jhk]4
+      [gato]
+      pescado
+      raton 
+      jalon
